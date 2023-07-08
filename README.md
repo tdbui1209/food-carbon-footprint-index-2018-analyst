@@ -1,0 +1,1 @@
+# food-carbon-footprint-index-2018-analyst
